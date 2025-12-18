@@ -1,0 +1,2 @@
+# USDT
+USDT MEM TOKEN
